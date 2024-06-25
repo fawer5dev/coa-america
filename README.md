@@ -22,4 +22,4 @@ En el Centro Ocupacional América, nos enorgullece ofrecer programas de estudios
 
 ---
 
-Para más información, no dudes en ponerte en contacto con nosotros. Estamos aquí para ayudarte en cada paso de tu camino educativo. https://www.facebook.com/profile.php?id=100057307764649&sk=photos
+Para más información, no dudes en ponerte en contacto con nosotros. Estamos aquí para ayudarte en cada paso de tu camino educativo. https://www.facebook.com/profile.php?id=100057307764649
